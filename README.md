@@ -3,5 +3,5 @@ Hey this is Dharith. I like football, food and OnePiece.
 Engineers rock!!
 
 Project members-
-Ghazaleh
+Ghazaleh Sajadi
 Sravya Kotla
